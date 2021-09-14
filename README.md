@@ -1,0 +1,1 @@
+# 10-sinif-cografya-moduler-soru-bankasi-32
